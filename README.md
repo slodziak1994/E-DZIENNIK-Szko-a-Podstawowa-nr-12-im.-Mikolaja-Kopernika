@@ -1,0 +1,1 @@
+# E-DZIENNIK-Szko-a-Podstawowa-nr-12-im.-Mikolaja-Kopernika
